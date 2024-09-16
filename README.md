@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Hope! 
+- 🏢 I'm the Ecosystem Platform Manager at Q-SYS, which means that I create content to support our Developers platform.
+- 📫 You can reach me at hope.roth@qsc.com
+- 🚗 You can find more of my work at developers.qsys.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I've traveled to every content except for Antarctica and Australia
