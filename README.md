@@ -3,4 +3,4 @@
 - 📫 You can reach me at hope.roth@qsc.com
 - 🚗 You can find more of my work at developers.qsys.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I've traveled to every content except for Antarctica and Australia
+- ⚡ Fun fact: I've traveled to every continent except for Antarctica and Australia
